@@ -1,0 +1,1 @@
+Wedbyme is a modern service, a convenient guide for celebrating any event. We will help you choose the best salon in any city of Armenia. Filtration will help you orientate quickly, as a result of the filtering you will not only get the basic information about the salon (address, cuisine, etc.) but you will also know the price, general services, etc.
